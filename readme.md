@@ -1,1 +1,1 @@
-# MSc_thesis_CecilliaMusci
+# MSc thesis Cecillia Musci
